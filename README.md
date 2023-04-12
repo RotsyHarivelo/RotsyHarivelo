@@ -13,5 +13,5 @@ My LinkedIN profil: https://www.linkedin.com/in/rotsy-harivelo-80478018a/
 <br><br>
 
 
-                                               🎈It is always a pleasure to exchange and work together🤝
+                                           🎈It is always a pleasure to exchange and work together🤝
                                                
