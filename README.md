@@ -1,16 +1,18 @@
-### Hi there 👋
+### Hi and welcome👋
 
-<!--
-**RotsyHarivelo/RotsyHarivelo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ ▸My name is Rotsy Harivelo I'm from SAYNA. This is a digital learning platform with a good family spirit✨.
+ ▸I'm passionate about computer science and artificial intelligence🤖.
+ ▸I'm currently doing an introductory course in coding: HTML/CSS but I'm still a beginner🌱.
+ ▸I'm looking for collaborators to work with me in various projects and trainers in the field of IT to further improve my knowledge and skills😊.
+ ▸I'm a motivated, dynamic, smiling and friendly person😄.
+ ▸If you are interested, you can reach me on my mail: Rotsyharivelo@gmail.com
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br><br>
+More about SAYNA : https://www.sayna.io
+My LinkedIN profil: https://www.linkedin.com/in/rotsy-harivelo-80478018a/
+
+
+
+                                               🎈It is always a pleasure to exchange and work together🤝
+                                               
