@@ -7,11 +7,6 @@
  - I'm a motivated, dynamic, smiling and friendly person😄.
  - If you are interested, you can reach me on my mail: Rotsyharivelo@gmail.com
 
-<br><br>
-More about SAYNA : https://www.sayna.io<br>
-My LinkedIN profil: https://www.linkedin.com/in/rotsy-harivelo-80478018a/
-<br><br>
-
 
                                         🎈It is always a pleasure to exchange and work together🤝
                                                
